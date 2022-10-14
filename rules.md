@@ -10,5 +10,5 @@
 4. Special cases for removal or censorship not covered by above will be considered on a case by case basis by the admins.
 
 ### Marketing
-5. Any advertising of events must by submitted to channel moderator or admin for approval before posting on main channel. S21 will share the events weekly on the main channel and/or in real-time on a separate channel here: 📣 https://t.me/s21events . Paid event(s) must offer special benefits to S21 members like a few free tickets, discounts, early access or similar.
+5. Any advertising of events must by submitted to channel moderator or admin for approval before posting on main channel. S21 will share the events weekly on the main channel and/or in real-time on a separate channel. Paid event(s) must offer special benefits to S21 members like a few free tickets, discounts, early access or similar.
 

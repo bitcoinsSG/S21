@@ -12,3 +12,5 @@
 ### Marketing
 5. Any advertising of events must by submitted to channel moderator or admin for approval before posting on main channel. S21 will share the events weekly on the main channel and/or in real-time on a separate channel. Paid event(s) must offer special benefits to S21 members like a few free tickets, discounts, early access or similar.
 
+## more changes to come
+
